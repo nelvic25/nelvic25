@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @nelvic25
-- 👀 I’m interested in LIFTING
+- 👀 I’m interested in LIFE
 - 🌱 I’m currently learning TELEMATICS
 - 💞️ I’m looking to collaborate on IDK
 - 📫 How to reach me nelsonvicvera@gmail.com
